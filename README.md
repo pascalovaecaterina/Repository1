@@ -6,3 +6,7 @@ https://www.figma.com/design/RAqdabVQg7JN32aqA5LfLD/%D0%9F%D1%80%D0%B5%D0%B7%D0%
 
 2.
 https://figma.com/...](https://www.figma.com/design/OF3TPfVJiMBt5b29STn354/Untitled?node-id=0-1&p=f&t=zPsmXLeN1Fh5Qzc3-0
+
+3.
+
+
